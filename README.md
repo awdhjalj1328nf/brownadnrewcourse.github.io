@@ -1,2 +1,2 @@
-# brownadnrewcourse.github.io
+# brownandrewcourse.github.io
 mmm
